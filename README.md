@@ -1,0 +1,1 @@
+# Grugliasco-foto
